@@ -1,3 +1,2 @@
 - 👋 Hi, I’m @natha81
-- meu emial de cintato nathalia.fank@escola.pr.gpv.br
--
+- meu emial de cintato nathalia.fank@escola.pr.gov.br
